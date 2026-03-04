@@ -16,3 +16,4 @@ my 4th commit
 i will marry soon
 i love you
 enjoy this game
+never lose hope
