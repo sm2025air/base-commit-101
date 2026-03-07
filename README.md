@@ -18,3 +18,4 @@ i love you
 enjoy this game
 never lose hope
 to the moon
+i eat rice
