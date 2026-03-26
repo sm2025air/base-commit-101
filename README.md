@@ -19,3 +19,4 @@ enjoy this game
 never lose hope
 to the moon
 i eat rice
+go to school today
